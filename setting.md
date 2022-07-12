@@ -1,6 +1,6 @@
 # Setting
 
-Orthodox plsalmody is liturgical music with a long history as well as wide and varied repertoire which was developed from early Roman chant. 
+Orthodox plsalmody is liturgical music traditon with a long history as well as wide and varied repertoire which was developed from early Roman chant. 
 
 Unlike its Catholic counterpart of Gregorian chant, its repertoire and notation are less known and less accessible in countries without an Orthodox majority. 
 
